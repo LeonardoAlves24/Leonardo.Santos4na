@@ -1,3 +1,5 @@
 # Leonardo.Santos4na
 
-Amo dar
+nome completo: Leonardo Alves dos Santos
+RA: 69621
+
